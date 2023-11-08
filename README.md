@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @GreenIsGreat
+- 👀 I’m interested in - Chill Work
+- 🌱 I’m currently learning - Cyber Security
+- 💞️ I’m looking to collaborate on - Co-Workers
+- 📫 How to reach me - Quade#6740 - Discord Or BIO
